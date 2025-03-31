@@ -1,6 +1,6 @@
 # 🚀 Hi, I'm Krishna! 👋  
 
-🌌 Stargazer | AI & Data Science Enthusiast | Tech Explorer
+🌌 Stargazer | Ai & Data Science Enthusiast | Tech Explorer
 
 🔭 About Me  
 - 💡 Passionate about AI, Data Science, and Astronomy  
